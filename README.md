@@ -1,1 +1,1 @@
-Site is here noob: https://rbx-script.poliju.repl.co Link not found? Then here: https://rb.gy/smzax1
+Site is here noob: https://rbx-script.poliju.repl.co Bye noob
